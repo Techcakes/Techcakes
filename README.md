@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Techcakes
 - 👀 I’m interested in ...a lot of things
 - 🌱 I’m currently learning ...data visualization
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on ... anything i would be able to do 
+- 📫 How to reach me ...nwaohachigozie14@gmail.com
 - 😄 Pronouns: ... she
 - ⚡ Fun fact: ...
 
